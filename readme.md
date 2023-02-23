@@ -2,7 +2,7 @@
 
 Speaker: [Ian Douglas](https://twitter.com/iandouglas736) 
 
-Slides: [Google Drive](#coming-soon)
+Slides: [Google Drive](https://docs.google.com/presentation/d/1GjzWv-b9T_5jGBQhRVjt9MLXFFiZzYUhXSHfNcTZHCQ/edit#slide=id.g1f375e5baaf_0_0)
 
 ---
 
